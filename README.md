@@ -1,3 +1,3 @@
-Jurij Vega
+Jurij Vegaa
 Ivan Vidav
 Matija Pretnar
